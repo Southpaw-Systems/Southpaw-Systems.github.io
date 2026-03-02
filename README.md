@@ -5,4 +5,4 @@ COMING SOON! Save The Date: 31st March 2026.
 
 Or Sooner. Or later. Or something.
 
-In error we trust! ䷪䷪䷪  🐒✅🎪✅
+In error we trust! ䷪䷪ 🎪✅🐒✅
